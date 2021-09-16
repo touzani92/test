@@ -1,5 +1,3 @@
 
 
-
-everyone has story so dont judge people !!
-
+ just stop wishing and start doing !!!
